@@ -47,7 +47,7 @@ Whilst at the Ministry for Trade and Industry (MTI), he oversaw tourism and coor
 
 <p>Dr Balakrishnan lives within the Holland-Bukit Timah GRC. He believes in working closely with fellow residents to protect our natural greenery, to upgrade our living environment, and to help foster friendships in a happy neighbourhood where our children can grow up safely and fulfil their potential; and seniors age with dignity.</p>
 
-<p>His parents, the lat Mr GD Balakrishnan and the late Mdm Ong Yong Sang, met whilst both were teachers at Bukit Panjang Primary School in the 50s and 60s.</p>
+<p>His parents, the late Mr GD Balakrishnan and the late Mdm Ong Yong Sang, met whilst both were teachers at Bukit Panjang Primary School in the 50s and 60s.</p>
 
 <p>He has been married for 29 years to his wife, Joy. He enjoys spending precious time with his daughter and three sons. To keep fit, he runs and cycles.</p>
 
